@@ -1,1 +1,1 @@
-Dnyanesh Kolapkar Resumec- https://dnyakola.github.io/gitresume/
+Dnyanesh Kolapkar Resume- https://dnyakola.github.io/gitresume/
